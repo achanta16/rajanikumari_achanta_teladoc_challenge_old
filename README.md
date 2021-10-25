@@ -1,1 +1,1 @@
-# rajanikumari_achanta_teladoc_challengella
+# rajanikumari_achanta_teladoc_challenge
